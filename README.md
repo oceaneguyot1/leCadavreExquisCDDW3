@@ -6,4 +6,4 @@ Mais soudain, un lutin apparut sur un traineau tiré par un dinosaure géant et 
 J'ai poussé tout le monde et j'ai lancé la balle magique de Corinne sur la tete du dragon et il s'est éfondré
 Dans son dernier souffle, le dragon pondit trois oeufs ornés du sceau de la Manu. Trois petits dragons en sortirent et poserent leurs yeux sur sofiane et l'appelerent "Papa!"
 
-Cette histoire est part en cacahuètes !
+Cette histoire part en cacahuètes !
